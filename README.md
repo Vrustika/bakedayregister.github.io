@@ -1,1 +1,0 @@
-# bakedayregister.github.io
